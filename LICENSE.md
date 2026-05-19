@@ -1,4 +1,4 @@
-# 
+# Novo Adobe Premiere Pro para PC scripts é o melhor Adobe Premiere Pro para PC scripts com edição multicâmera e captura multisfonte. Seguro, confiável e otimizado para máximo
 
 
 
